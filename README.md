@@ -1,6 +1,10 @@
-˚ ༘♡ ⋆｡˚ WELCOME ..
+˚ ༘♡ ⋆｡˚ 𝙒𝙀𝙇𝘾𝙊𝙈𝙀 ! . . .
 
-•°. *࿐ .      .        . 
+     .        .         .         .         .
+![needy-streamer-overload-needy-girl-overdose](https://github.com/CHIPCHROM/CHIPCHROM/assets/167219213/facfbc6b-f434-4a8b-b16f-5f45e16dcca2)    ![ame-chan-kangel](https://github.com/CHIPCHROM/CHIPCHROM/assets/167219213/dde045b7-ccc7-4ae3-9886-8f0977a6375b)
 
 
-![tumblr_22a621da2c4123f3657330404c8b56fd_51798eb1_540](https://github.com/CHIPCHROM/CHIPCHROM/assets/167219213/e92cae97-420d-446a-9a5e-cf95bdcaf99b)
+
+
+•°. *࿐ . . . . .   
+
