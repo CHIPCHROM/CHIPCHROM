@@ -1,6 +1,5 @@
 ˚ ༘♡ ⋆｡˚ 𝙒𝙀𝙇𝘾𝙊𝙈𝙀 ! . . .
 
-![](https://komarev.com/ghpvc/?username=CHIPCHROM&color=ff69b4)
 
 
 
